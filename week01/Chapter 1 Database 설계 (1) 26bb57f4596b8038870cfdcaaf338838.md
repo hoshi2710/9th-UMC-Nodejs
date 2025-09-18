@@ -26,7 +26,7 @@ https://forms.gle/EUaXpsc3Ziz7mjQn8
 * 스터디리더께서 대표로 매 주차마다 한 장 남겨주시면 좋겠습니다!🙆💗
  (사진을 저장해서 이미지 임베드를 하셔도 좋고, 복사+붙여넣기 해서 넣어주셔도 좋습니다!)
 
-[](https://www.notion.so)
+![IMG_4093.JPEG](Chapter%201%20Database%20%EC%84%A4%EA%B3%84%20(1)%2026bb57f4596b8038870cfdcaaf338838/IMG_4093.jpeg)
 
 ## 📑 1주차 주제
 
